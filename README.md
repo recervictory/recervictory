@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **python,**
 
-- 📫 How to reach me **recervictory@hmail.com**
+- 📫 How to reach me **recervictory@gmail.com**
 
 - ⚡ Fun fact **I love reading, coding, poetry.**
 
